@@ -259,7 +259,7 @@ Filmes e TV são obras de arte visual que empregam imagens em movimento para imi
 
 - [Resultados de segurança da URL](https://www.urlvoid.com/scan/piratatvs.com/)
 
-### 🔗 [Rei dos Canais](https://reidoscanais.vip/)
+### 🔗 [Rei dos Canais](https://reidoscanais.st/)
 
 - [Resultados de segurança da URL](https://www.urlvoid.com/scan/reidoscanais.vip/)
 
